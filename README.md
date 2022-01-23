@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DeityOkami 
 - 👀 I’m interested in wolves and roses.
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on No one.
+- 💞️ I’m looking to collaborate on Air.
 - 📫 How to reach me add me on discord 𝓓𝓮𝓲𝓽𝔂_Ō𝓴𝓪𝓶𝓲#0001
 
 <!---
